@@ -1,1 +1,1 @@
-https://tyqintai.com/?referrer=100030## B-D502
+# B-D502
